@@ -1,2 +1,2 @@
 # Podcast-Guerra-dos-C-digos
-https://www.notion.so/2828fa627983803abba3e7ea93b77b5c?v=2828fa62798380dba316000c9f299dc6&amp;source=copy_link
+https://fabulous-chevre-33a.notion.site/Podcast-Guerra-dos-C-digos-A-Revolu-o-da-Intelig-ncia-Artificial-2858fa6279838059bc7fe57439621852
