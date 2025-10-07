@@ -2,7 +2,7 @@
 https://fabulous-chevre-33a.notion.site/Podcast-Guerra-dos-C-digos-A-Revolu-o-da-Intelig-ncia-Artificial-2858fa6279838059bc7fe57439621852
 
  # Link do projeto com edição 
- user959332375970 shared a CapCut link with you 1006(2) https://www.capcut.com/view/7558536853553988149?workspaceId=7558226679555014717
+ https://www.capcut.com/view/7558536853553988149?workspaceId=7558226679555014717
 preview do podcast
 
 Projeto Podcast Gerado por I.A.s
